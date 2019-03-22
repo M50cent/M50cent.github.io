@@ -1,1 +1,1 @@
-# M50cent.github.io.
+# M50cent.github.io
